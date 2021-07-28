@@ -3,9 +3,9 @@
 
 # 2019
 
-東京都庁での展示。2019年7月30日撮影。
+東京都庁での期間限定の展示。2019年7月30日撮影。
 
-Exhibition at Tokyo Metropolitan Government building on 2019.7.30.
+Exhibition for a limited time at Tokyo Metropolitan Government building. Photos were taken on 2019.7.30.
 
 ![The-Olympic-Medals_Tokyo2020_01](https://user-images.githubusercontent.com/20723919/127309995-7fdca82e-6de6-420d-b246-de710744ad39.jpg)
 
