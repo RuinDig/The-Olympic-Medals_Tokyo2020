@@ -3,7 +3,7 @@
 
 # 2019
 
-東京都庁での展示。2019年7月30日。
+東京都庁での展示。2019年7月30日撮影。
 
 Exhibition at Tokyo Metropolitan Government building on 2019.7.30.
 
